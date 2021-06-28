@@ -1,0 +1,1 @@
+**Estou achando o curso muito bom, tanto na parte do conteúdo, quanto os professores, que apresentam uma ótima didática para ensinar... Gama simplesmente incrível!!!**
